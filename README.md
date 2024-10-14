@@ -5,9 +5,8 @@
 - 💞️ I’m looking to collaborate on any project! 
 - 📩 You can contact me via DM :)
 - 👩🏻‍💻 Pronouns: she/her
-- ⚡ Fun fact: ... (to be continued)
-
-- love and sparkles, milanesa ✨
+  <!--- ⚡ Fun fact: ... (to be continued) --->
+love and sparkles, milanesa ✨
 
   p.s.: yes, i love sparkly things 
 
