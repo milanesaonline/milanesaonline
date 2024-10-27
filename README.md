@@ -5,6 +5,7 @@
 - 💞️ I’m looking to collaborate on any project! 
 - 📩 You can contact me via DM :)
 - 👩🏻‍💻 Pronouns: she/her
+- 💖 I'm featured on a Coldplay song 😎 you can listen to it here: https://www.coldplay.com/one-world/ 
   <!--- ⚡ Fun fact: ... (to be continued) --->
 love and sparkles, milanesa ✨
 
